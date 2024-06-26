@@ -6,4 +6,5 @@
 - 😄 Pronouns: uwu/owo
 - ⚡ Fun fact: I exist
 
-If you found this readme file, then good job, I only made this account to have an account, I'll most likely never use it for projects or anything
+wow I have github imagine that
+Linktree: https://linktr.ee/zeppytube
