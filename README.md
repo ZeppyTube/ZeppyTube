@@ -7,4 +7,4 @@
 - ⚡ Fun fact: I exist
 
 wow I have github imagine that
-Linktree: https://linktr.ee/zeppytube
+- Linktree: https://linktr.ee/zeppytube
